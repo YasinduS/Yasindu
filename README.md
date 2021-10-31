@@ -1,2 +1,0 @@
-# Yasindu
-DSSC-Codestrom
